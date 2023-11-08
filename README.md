@@ -1,1 +1,42 @@
-# maria.1nem
+# maria.1a
+
+
+
+
+
+
+
+
+     É um conceito amplo que engloba tendências de roupas, acessórios, estilo de vida e comportamento. Ela é uma forma de expressão cultural e individual, que reflete as mudanças na sociedade e as influências de diversos aspectos, como arte, música e tecnologia.Tendência de moda é o que se usa e se consome em determinado momento. São peças de roupa, acessórios, calçados, além de cores, formatos e materiais presentes no gosto de determinado público em uma estação do ano ou época específica.
+       A moda visa permitir que as pessoas se expressem e mostrem as suas personalidades por meio do vestuário e do modo de agir. O conceito de moda é muito diverso, dentro dele existem diferentes estilos, vivências, etnias, religiões, além de muita criatividade,
+
+    
+
+
+     
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
